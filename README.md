@@ -1,8 +1,8 @@
 <p align="center">
-  <img src="https://media.tenor.com/LTkMDiVYv2MAAAAi/mewtwo.gif" width= 50%>
+  <img src="https://media.tenor.com/0bAdCRKqrXIAAAAi/springtrap-spinning.gif" width= 50%>
 </p>
 <p align="center"> ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱ </p>
-<p align="center"> `` the humans are a dangerous species. `` </p>
+<p align="center"> `` > the horse walks in `` </p>
 <p align="center"> dave ⋄ he/him/they/them ⋄  boyflux/demisexual/mlm queerboy (/silly) </p>
 <p align="center"> i block freely and i block a lot,, esp bigots/weirdos. </p>
 <p align="center"> ▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱▰▱ </p>
